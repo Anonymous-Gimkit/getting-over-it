@@ -1,1 +1,1 @@
-# ALL RIGHTS BELONG TO [GRIFFPATCH](scratch.mit.edu/users/griffpatch).
+# ALL RIGHTS BELONG TO [GRIFFPATCH](https://scratch.mit.edu/users/griffpatch).
